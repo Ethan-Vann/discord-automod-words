@@ -18,3 +18,12 @@ slut
 
 tranny
 
+fuck
+
+fking
+
+titties
+
+shit
+
+coochie
