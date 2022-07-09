@@ -4,8 +4,6 @@ retard
 
 nigger
 
-fuck
-
 cuck
 
 asshole
